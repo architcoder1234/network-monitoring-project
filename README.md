@@ -8,4 +8,4 @@ https://drive.google.com/file/d/17Pm9PgK37qzz2LlqOSthO8c8hpehGKz-/view?usp=drive
 
 
 report pdf link-
-https://github.com/architcoder1234/network-monitoring-project.git
+https://drive.google.com/file/d/1YyNaq9OqbfSnk1aA7Bz0oNa5dhMUcMEQ/view?usp=sharing
